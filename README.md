@@ -12,4 +12,4 @@
 
 
 
-![image alt](https://github.com/satishspatil-01/Ubuntu_Satish/blob/17312f2a1b38cd4128589fd728ee9347f9debdaf/VID-20250831-WA0016.mp4)
+https://github.com/user-attachments/assets/75e29560-4e56-46d2-b32f-8a1dcd78e28c
